@@ -6,7 +6,7 @@ My name is Enest Dembedza and I am from Harare, Zimbabwe. I am excited to be a p
 
 Personal Information
 
-I am married and have two wonderful kids. My family means everything to me, and I strive to make them happy every day.
+I am married and have two wonderful kids. My family means everything to me,and I strive to make them happy every day.
 
 Hobbies
 
